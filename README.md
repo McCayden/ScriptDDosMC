@@ -1,0 +1,2 @@
+# ScriptDDosMC
+Script DDos,Potente
